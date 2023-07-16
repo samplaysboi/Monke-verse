@@ -5,7 +5,7 @@ nav_order: 2
 permalink: chapter-1
 ---
 
-# Chapter 1 - a new era
+# Chapter 1 - _A new era_
 
 Aaron and his Friends were exploring around the city of Mineke. They were looking for an enchanted book called The Legendary War of Monke and Demonke. They wanted to know the history about how The Monke God made the Universe. They approached the secret Base of the President of Mineke. They had to do it quietly or else they will be executed. 
 
