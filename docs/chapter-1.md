@@ -1,7 +1,7 @@
 ---
 layout: default
 title: Chapter 1
-nav_order: 1
+nav_order: 2
 permalink: chapter-1
 ---
 
