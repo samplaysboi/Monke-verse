@@ -5,7 +5,7 @@ nav_order: 5
 permalink: chapter-4
 ---
 
- ## Chapter 4 - Dominius
+ ## Chapter 4 - _Dominius_
 
 As the figure says that he looks up and the group recognizes him as Zach. “Oh you guys look familiar” said the other Zach.
 
