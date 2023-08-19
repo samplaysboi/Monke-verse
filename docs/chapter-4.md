@@ -22,6 +22,7 @@ But them they hear a voice: ”Hello I was expecting you”  The group look arou
 Then suddenly portals appear and Zach, Markus, Lias and Simon all step out of those portals.'' our code names are. 
   
 Aperture the dimension jumper is Zach. Lich king Signus is Sam. Metronome the corrupter is Markus. Chronos the all knowing is Simon and Null the dragon warrior is Lias.
+
 We all also have special powers gifted to u from the gods. Signuses power is afliction he can summon a crimson flame that could burn people seconds. But if he activates Gama he could kill entire citys. Oh i forgot when you kill one of us you get one of our powers.''
   
 ,,i killed Signus'' said Zach. Then Dominius says:,, Zach can summon portals that can travel through dimensions. Markus can corrupt his suroundings and make anything out of it like mechs and weapons. Simon has the ability to know everything, he knows your conversations and your attack paterns. Lias has the ability to controll dragons and use dragon attacks. And my ability is i have dark matter magic.
