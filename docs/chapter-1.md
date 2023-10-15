@@ -31,7 +31,7 @@ Suddenly, out of nowhere, a strange eerie sound was to be heard when Zach and Sa
 
 While they were running, a trapdoor suddently opened in the group with Zach, Daniel and Yeet. Yeet fell down into the trapdoor, and heard an erie voice "did you find them?".
 
-(then it switches to Daniel and Zach) "where´s Yeet?" asked Daniel.
+(then it switches to Daniel and Zach) "where's Yeet?" asked Daniel.
 
 "I don´t know he just kinda disappeared" Zach anwsered.
 
@@ -47,15 +47,15 @@ Then suddently, a dark figure jumps out and slashes at the duo with his battle a
 
 Daniel and Zach run away and yell "HELP!". 
 
-Sam hears Daniels voice and rushes to him as he saw Daniel Sam said "Hey! i found you!"
+Sam hears Daniel's voice and rushes to him as he saw Daniel Sam said "Hey, i found you!".
 
 As he said that the axe of the man flies through the air piercing Sam and killing him.
-Sams lifeless body lays there while the man comes out of the shadow introducing himself as Atom the bounty hunter.
+Sams lifeless body lays there while the man comes out of the shadow introducing himself as Adam the bounty hunter.
 
-"now if you had just listend to me your friend wouldnt have died" said atom.
+"Now, if you had just listend to me, your friend would'nt have died", said Adam.
 
-Suddenly markus punched Atom with a Energy magic infused punch, and the battle beginns. Atom looks at whole group that had just arived and lunges at them. Markus and Aaron rush at him and both use spirit magic to attack him. Atom effortly blocks the attack and kicks aaron back with explosion magic. aaron was sent back and markus was slammed into the ground with shockwave magic. Zach rushes at Atom and hits him with multiple flame infused attacks.
+Suddenly, Markus punched Adam with an energy magic infused punch, and the battle beginns. Adam looks at the whole group that had just arrived and lunges at them. Markus and Aaron rush at him and both use spirit magic to attack him. Adam effortly blocks the attack and kicks Aaron back with explosion magic. Aaron was sent back and Markus was slammed into the ground with shockwave magic. Zach rushes at Adam and hits him with multiple flame infused attacks.
 
-"I told you i had a bad feeling about this" said aaron.
+"I told you I had a bad feeling about this", said Aaron.
 
-then Atom rushes at the group again and swings his axe at zach that was infused with explosion and shockwave magic. Zach doges it but then falls to the ground. Then Atom slammed his axe down at Zach and hits him in the leg. Suddently Atom was impaled from daniels gauntlets. Atom falls down dead and Sam was avenged. Aaron walks to the podium where the book is hidden and takes it.
+Then Adam rushes at the group again and swings his axe at Zach that was infused with explosion and shockwave magic. Zach doges it but then falls to the ground. Then Adam slamms his axe down at Zach and hits him in the leg. Suddently, Adam was impaled from Daniel's gauntlets. Adam falls down dead and Sam was avenged. Aaron walks to the podium where the book is hidden and takes it.
